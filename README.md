@@ -24,11 +24,11 @@
 
 ---
 
-### Link Demo Website : 
+### Link Demo Website : http://iandyyy.my.id/
 
 ### Link Demo Youtube : 
 
 ### Laporan PDF : 
 
-### Cukup sekian,TerimaKasih
+### Terima Kasih semuanya 
 
